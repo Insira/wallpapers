@@ -1,4 +1,4 @@
-# Mason's Wallpaper Collection
+# Wallpaper Collection
 
 I have collected these wallpapers over a number of years and have no idea where I got most of them.  I have also renamed them all (giving them a number) so I don't even have their original filename. So I am in the process of uploading my entire wallpaper directory for those that want/need them.
 
